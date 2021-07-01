@@ -2,9 +2,23 @@
 
 
 
-link download :
+more information about setting:
 
-<b>https://santricoder.blogspot.com/2021/06/sengoku-basara-2-heroes-untuk-android.html
+<b>https://bit.ly/Sengokubasara2heroes
+
   
+  
+link File Data sengoku basara 2 heroes:
+  
+<b>https://bit.ly/FileDataBasara
+  
+  
+  
+link cheat basara
+
+<b>https://bit.ly/Codebasaramax
+  
+  
+  thanks
   
   
