@@ -2,7 +2,7 @@
 
 
 
-cara setting dolpin
+<b>cara setting dolpin
 
 <b>https://bit.ly/Sengokubasara2heroes
 
